@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bubugian
 - 👀 I’m interested in anything expresses creativity
-- 🌱 I’m currently learning to live in peace
+- 🌱 I’m currently learning how to live in peace
 - 💞️ I’m looking to collaborate with my wife :-)
 - 📫 How to reach me: try with a (better if two) glass of good red wine (or the !right! beer)
 
